@@ -1,0 +1,2 @@
+# -Leukapheresis-Market-
+Leukapheresis Market is expected to reach US$ 27.5 Bn by 2026 at a CAGR of 7.5% during the forecast period. Leukapheresis is a laboratory procedure in which white blood cells are separated from a sample of blood. It is a specific type of apheresis, the more general term for separating out one particular constituent of blood and returning the remaining part to the circulation.
